@@ -1,1 +1,2 @@
-# BIP This website is dedicated to raising awareness about companies and products that support the Israeli occupation and apartheid policies. We aim to empower consumers with knowledge, helping them make ethical, informed choices that align with justice, human rights, and global solidarity. we stand with the oppressed people of Palestine.
+ This website is dedicated to raising awareness about companies and products that support the Israeli occupation and apartheid policies. We aim to empower consumers with knowledge, helping them make ethical, informed choices that align with justice, human rights, and global solidarity. we stand with the oppressed people of Palestine.
+                                                                                    
